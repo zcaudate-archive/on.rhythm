@@ -16,7 +16,7 @@ Far too long I've walked alone.
 Time stood still, when I saw your face
 Arresting my expression
 Spoken dreams beyond the words I know
-Quivering lips to fulfill.
+Lips longing to be fulfilled.
 
 <HINDI CHORUS 1>
 
