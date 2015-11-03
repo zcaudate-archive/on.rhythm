@@ -1,6 +1,7 @@
 I wish to convey the transiance of emotion. 
 The original song is about eternal love - very simple and sweet. 
-This is still eternal but it's about the eternity of the ebb and flow of desire and the inpermanence of this world.
+This is still eternal, but it's more about the eternity of change.
+The ebb and flow of desire and the inpermanence of this world.
 
 -------------------------
 
