@@ -1,8 +1,8 @@
 ```
-I wish to convey the transiance of emotion,
-The original song was about eternal love - very simple and sweet. 
+I wish to convey the transiance of desire,
+The original song was about eternal love and waiting - very simple and sweet. 
 This version is still eternal, but it's about the eternity of change,
-the ebb and flow of desire and the inpermanence of this world.
+The ebb and flow of attraction within the inpermanence of this world.
 ```
 
 ---------------------------
@@ -33,4 +33,11 @@ Come to me before you break free
 Rest by the fork in the road.
 
 <HINDI and ENGLISH CHORUS 1, REPEATED>
+
+<FINI>
+Step by step, never to comply
+Gaze at life's reflections
+....
+....
+
 ```
