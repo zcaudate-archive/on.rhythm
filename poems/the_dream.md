@@ -14,7 +14,7 @@ Hold me tight and never let me go,
 Far too long I've walked alone.
 
 Time stood still, when I saw your face
-Blinding my expressions
+Arresting my expressions
 Spoken dreams beyond the words I know
 Quivering lips to fulfill.
 
