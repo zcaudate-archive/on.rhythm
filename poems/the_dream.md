@@ -2,7 +2,7 @@
 I wish to convey the transiance of desire,
 The original song was about eternal love and waiting - very simple and sweet. 
 This version is still eternal, but it's about the eternity of change,
-The ebb and flow of attraction within the inpermanence of this world.
+The ebb and flow of attraction within the impermanence of this world.
 ```
 
 ---------------------------
@@ -14,7 +14,7 @@ Hold me tight and never let me go,
 Far too long I've walked alone.
 
 Time stood still, when I saw your face
-Arresting my expressions
+Arresting my expression
 Spoken dreams beyond the words I know
 Quivering lips to fulfill.
 
