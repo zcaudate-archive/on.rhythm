@@ -1,9 +1,10 @@
-I wish to convey the transiance of emotion. 
-The original song is about eternal love - very simple and sweet. 
-This is still eternal, but it's more about the eternity of change.
-The ebb and flow of desire and the inpermanence of this world.
+I wish to convey the transiance of emotion,
+The original song was about eternal love - very simple and sweet. 
 
--------------------------
+This version is still eternal, but it's about the eternity of change,
+the ebb and flow of desire and the inpermanence of this world.
+
+---------------------------
 
 Wake me up, before I lose control
 In this place of angels.
