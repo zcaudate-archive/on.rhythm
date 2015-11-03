@@ -5,7 +5,7 @@ This version is still eternal, but it's about the eternity of change,
 the ebb and flow of desire and the inpermanence of this world.
 
 ---------------------------
-
+```
 Wake me up, before I lose control
 In this place of angels.
 Hold me tight and never let me go,
@@ -31,3 +31,4 @@ Come to me before you break free
 Rest by the fork in the road.
 
 <HINDI and ENGLISH CHORUS 1, REPEATED>
+```
