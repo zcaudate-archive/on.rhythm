@@ -23,7 +23,7 @@ Quivering lips to fulfill.
 Hear my soul's eternal reply
 Could this be your answer?
 Lost in creations of our lonely minds
-Crave to unite in sorrow.
+Aching to unite in sorrow.
 
 <HINDI CHORUS 2>
 
