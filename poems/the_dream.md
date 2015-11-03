@@ -1,8 +1,8 @@
 ```
-I wish to convey the transiance of desire,
+I wish to convey the transience of desire,
 The original song was about eternal love and waiting - very simple and sweet. 
-This version is still eternal, but it's about the eternity of change,
-The ebb and flow of attraction within the impermanence of this world.
+This version is about the eternity of change, and the ebb and flow of attraction
+within the impermanence of this world.
 ```
 
 ---------------------------
