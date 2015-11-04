@@ -14,16 +14,16 @@ Hold me tight and never let me go,
 Far too long I've walked alone.
 
 Time stood still, when I saw your face
-Arresting my expression
+Arresting my attention
 Spoken dreams beyond the words I know
-Lips longing to fulfill.
+Lips that long to fulfill.
 
 <HINDI CHORUS 1>
 
 Hear my soul's eternal reply
 Could this be your answer?
 Lost in creations of our lonely minds
-Aching to unite in sorrow.
+Crave to unite in sorrow.
 
 <HINDI CHORUS 2>
 
@@ -37,6 +37,7 @@ Rest by the fork in the road.
 <FINI>
 Step by step, never to comply
 Gaze at life's reflections
+
 ....
 ....
 
